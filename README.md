@@ -1,9 +1,20 @@
 # Zoom, Map Reveal & ESP
 
-This is my private zoom/map reveal and esp, 
-add me on discord (natural707) with a note and $5 to spare!
-I'll probably add more stuff to it this season 14
+This is a PAID tool ($5)
 
+Available on patreon :
+www.patreon.com/c/natural707/shop
 
+Discord Server : 
+https://discord.gg/ppRA6PKcZ
 
-![Map reveal and ESP](screenshot.png)
+TLI OVERDRIVE — your unfair advantage.
+
+⚔️ Auto Loot
+👁 Monster ESP
+🗺 Top View + Map Reveal
+🔍 Zoom Out / Better FOV
+⚡ Timescale (10% Move Speed Toggle)
+
+See more. Loot faster. Move smarter.
+
