@@ -1,6 +1,7 @@
 # Zoom, Map Reveal & ESP
 
 This is a PAID tool ($5)
+Paypal/PIX available
 
 Available on patreon :
 www.patreon.com/c/natural707/shop
