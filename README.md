@@ -8,6 +8,11 @@ www.patreon.com/c/natural707/shop
 Discord Server : 
 https://discord.gg/ppRA6PKcZ
 
+Showcase Video :
+
+https://www.youtube.com/watch?v=5xjwslQcGdM
+
+
 TLI OVERDRIVE — your unfair advantage.
 
 ⚔️ Auto Loot
