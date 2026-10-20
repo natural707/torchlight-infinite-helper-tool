@@ -1,7 +1,9 @@
 火炬之光：無限 # Zoom, Map Reveal & ESP
 
-This is a PAID tool ($5)
-Paypal/PIX available if you DM me
+$10 for the entire season (3 months)
+Free test key/discount if you are able to record content/get new people to join.
+
+Discord server : https://discord.gg/ppRA6PKcZ
 
 Available on patreon :
 www.patreon.com/c/natural707/shop
